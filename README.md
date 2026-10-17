@@ -1,0 +1,2 @@
+# smaran
+SMARAN privacy policy
